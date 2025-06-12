@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-int ‎ﾉ ‎c+h⠀freely⠀!
+int ‎ﾉ ‎c+h⠀fandom only⠀!
 </p>
 
 <p align="center">
