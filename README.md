@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/ogxo28.gif" | width=800 style="font-size: 12px;"/>
+  <img src="https://i.postimg.cc/bNHKX298/ezgif-16bd795932edec.gif" | width=800 style="font-size: 12px;"/>
 </p>
 
 
