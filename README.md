@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="https://stagdwle.straw.page/">𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=grey&style=plasic&label=𖦹₊⊹"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <a href="https://pronouns.cc/@stagdwle">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬</a>
+  <a href="https://stagdwle.straw.page/">𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=e5d1b0&style=plasic&label=｡𖦹°‧⭑.ᐟ"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <a href="https://pronouns.cc/@stagdwle">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬</a>
 </p>
 
 <p align="center">
